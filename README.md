@@ -1,2 +1,0 @@
-# TED_TXT-CATERAR-HUB
-Skylestroderposlenhomefuckmydickandlickmyass
